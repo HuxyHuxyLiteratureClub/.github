@@ -4,4 +4,4 @@
 
 💬 Make new friends, find similar interests and more!
 
-✨ Coming out *Sometime soon...*.
+✨ Coming out *sometime soon...*.
